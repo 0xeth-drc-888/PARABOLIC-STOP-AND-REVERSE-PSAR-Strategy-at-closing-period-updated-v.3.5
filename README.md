@@ -1,0 +1,1 @@
+# PARABOLIC-STOP-AND-REVERSE-PSAR-Strategy-at-closing-period-updated-v.3.5
